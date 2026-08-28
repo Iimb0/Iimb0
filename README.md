@@ -5,7 +5,7 @@ BLACKLIST
 <br>
 
 
-i actually dont want to make any blacklist or something but you did add me in yours first then i do too.
+i actually dont want to make any blacklists or something (it sounds childish and immature for me ugh) but you did add me in yours first then i do too.
 <br>
 alr im not a hater, everyone knows that 
 <br>
