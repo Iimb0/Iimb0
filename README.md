@@ -14,6 +14,6 @@ BLACKLIST
 
 i actually dont want to make any blacklists or something (it sounds childish and immature to me ugh) but you added me to yours first, then i did too. tit for tat, sweetie 
 <br>
-alr im not a hater, everyone knows that and i know that someone in my friend list is betraying me btw 
+alr im not a hater, everyone knows that and i also know that someone in my friend list is betraying me btw 
 <br>
 maybe ill add my thoughts there later, i need to think about what i should say 
