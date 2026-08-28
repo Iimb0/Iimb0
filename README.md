@@ -3,11 +3,11 @@ BLACKLIST
 <br>
 <a href="https://github.com/angeIties">
   <img width="792" height="280" alt="Image" src="https://github.com/user-attachments/assets/a10c38dc-e611-4651-880c-ab85d9570e48" />
-<a/>
+</a>
 <br>
 <a href="https://github.com/SALVAT-0RE">
-  <<img width="800" height="264" alt="Image" src="https://github.com/user-attachments/assets/cf409bad-d789-4a1a-87c1-b88d7b705adb" />
-<a/>
+  <img width="800" height="264" alt="Image" src="https://github.com/user-attachments/assets/cf409bad-d789-4a1a-87c1-b88d7b705adb" />
+</a>
 <br>
 
 
